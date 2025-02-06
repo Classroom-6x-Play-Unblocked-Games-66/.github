@@ -2,11 +2,14 @@
 
 **Classroom 6x** is the ultimate destination for playing **Unblocked Games 66** at school, home, or anywhere with restricted internet access. This platform provides a wide variety of **free, browser-based games** that can be played without downloads or installations. Whether you're into action-packed adventures, brain-teasing puzzles, or fast-paced racing games, **Classroom 6x** has something for everyone!  
 
-
+## [https://classroom-6x-cool.gitlab.io/](https://classroom-6x-cool.gitlab.io/)
 
 ## **What is Unblocked Games 66?**  
 
 **Unblocked Games 66** is a collection of online games that can be played on school and work networks without restrictions. These games are designed to run smoothly on any browser, making them accessible on **Chromebooks, laptops, and mobile devices**.  
+
+![image](https://github.com/user-attachments/assets/1a8083f6-5e5e-4e94-82ba-032a6f6ccf95)
+
 
 ### **Why Choose Classroom 6x for Unblocked Games 66?**  
 
@@ -28,6 +31,9 @@ A thrilling endless runner set in space, where you navigate tricky platforms.
 
 ### **4. Drift Hunters**  
 A high-speed racing game that lets you customize cars and perform crazy drifts.  
+
+![image](https://github.com/user-attachments/assets/5d96338a-e669-437d-808d-38f6ba90ed12)
+
 
 ### **5. Basketball Stars**  
 A fun and competitive **basketball game** where you can challenge AI or real players.  
